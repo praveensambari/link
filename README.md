@@ -7,6 +7,5 @@ Register on Confluence application with referral code CGLAK02743 and get 250 poi
 D8J2G5
 
 
-https://minijoy.page.link/cY1mj
 
-https://minijoy.page.link/jr4q1
+https://www.workindia.in/ref/samb7761
