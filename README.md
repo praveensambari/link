@@ -16,6 +16,8 @@ https://www.atnyla.com/library/java/java-chapterwise-program/
 
 https://phon.pe/ru_pravI0Oia
 
+c2qd1o  https://g.co/payinvite/c2qd1o
+
 https://mena.yougov.com/en/refer/jTMH3TnXhH9r_Qy0MfUK4A/
 
 https://firstgames.onelink.me/1XO5/75a69de6
