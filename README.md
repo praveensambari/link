@@ -25,3 +25,11 @@ https://firstgames.onelink.me/1XO5/75a69de6
 https://firstgames.onelink.me/1XO5/ddf3f752
 
 https://mena.yougov.com/en/refer/jTMH3TnXhH9r_Qy0MfUK4A/
+
+
+1. Click on the invite link below
+2. Link your Bank Account on Paytm App
+3. Transfer Money directly from Bank account using BHIM UPI
+4. Get ₹1000 Cashback every month
+
+ https://paytmapp.app.link/8i4Up0z5m4
