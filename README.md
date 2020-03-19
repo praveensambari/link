@@ -1,6 +1,7 @@
 https://s.clipclaps.tv/i/4457220700
  40RT7K71
 
+
 https://firstgames.onelink.me/1XO5/a00562cc
 
 Register on Confluence application with referral code CGLAK02743 and get 250 points. 
@@ -23,6 +24,8 @@ https://phon.pe/ru_pravI0Oia
 
 c2qd1o  https://g.co/payinvite/c2qd1o
 
+Join me on Google Pay, a secure app for money transfers, bills and recharges. Enter my code c2qd1o to earn ₹21 back on your first payment! https://g.co/payinvite/c2qd1o
+
 https://mena.yougov.com/en/refer/jTMH3TnXhH9r_Qy0MfUK4A/
 
 https://firstgames.onelink.me/1XO5/75a69de6
@@ -38,3 +41,5 @@ https://mena.yougov.com/en/refer/jTMH3TnXhH9r_Qy0MfUK4A/
 4. Get ₹1000 Cashback every month
 
  https://paytmapp.app.link/8i4Up0z5m4
+
+https://phon.pe/ru_pravI0Oia
