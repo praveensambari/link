@@ -32,6 +32,14 @@ https://www.atnyla.com/library/java/java-chapterwise-program/
 Hey, friend! I am making up for that pending treat with Rs. 100 recharge discount coupons.
 Wait, there’s more. You also stand a chance to win an Mi 43” Full HD TV. All you gotta do is tap on the link  http://u.airtel.in/EQPtHb
 
+I am sending you ₹41 for completing your first transaction via Airtel UPI. 
+ 1. Click my link to install the Airtel app and claim the offer. 
+ 2. Create an Airtel UPI ID. 
+ 3. Pay for anything or send money using Airtel UPI. Minimum transaction ₹50. 
+ 4. Get the cashback in your Airtel Money wallet. 
+Use my link to avail the offer. Valid for Airtel and Non Airtel users- https://airtel.onelink.me/5m6m/be9f9448
+
+
 https://phon.pe/ru_pravI0Oia
 
 c2qd1o  https://g.co/payinvite/c2qd1o
