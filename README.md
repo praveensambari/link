@@ -1,3 +1,18 @@
+
+
+I am sending you ₹41 for completing your first transaction via Airtel UPI. 
+ 1. Click my link to install the Airtel app and claim the offer. 
+ 2. Create an Airtel UPI ID. 
+ 3. Pay for anything or send money using Airtel UPI. Minimum transaction ₹50. 
+ 4. Get the cashback in your Airtel Money wallet. 
+Use my link to avail the offer. Valid for Airtel and Non Airtel users- https://airtel.onelink.me/5m6m/8f7275c9
+
+https://airtel.onelink.me/5m6m/8f7275c9
+
+https://airtel.onelink.me/5m6m/8f7275c9
+
+
+
 https://s.ucnews.in/d/69K1bXeRGxx0?pub=iact-akRrM1DrLo&actentry=activity_return&actstart=activity&actname=akRrM1DrLo
 
 pfqfb
