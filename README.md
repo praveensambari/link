@@ -1,3 +1,7 @@
+Hey! You can now use Amazon for money transfer, scan QR, bills and shopping. Join me and get rewards up to Rs.350. Use my referral code: L43JTD or click on
+
+http://amzn.in/7Z1eAc0
+
 https://vm.tiktok.com/J16YGbe/
 
 82ULzVqJyTk
