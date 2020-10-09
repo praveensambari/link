@@ -4,6 +4,7 @@ Hey! You can now use Amazon for money transfer, scan QR, bills and shopping. Joi
 
 http://amzn.in/7Z1eAc0
 
+87122 43398
 
 https://youtu.be/6mckK71A2dA   Hey there! I have been investing in stocks and mutual funds using the Upstox platform and am quite impressed! Upstox offers free equity delivery trades and you pay only up to Rs. 20 per order for Intraday, Futures and Options and Currencies and Commodities. You get one of the best margins in the industry and access to a wide range of technical indicators and drawing tools. Join one of India's fastest-growing broker. Sign up for a demat account now.   
 
