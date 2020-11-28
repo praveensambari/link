@@ -1,3 +1,7 @@
+Hey! I'm now using Paytm to pay anyone directly from my bank account. Join me and win up to ₹700 cashback every month on sending money to any mobile number, bank account number or UPI ID. Make your 1st payment from bank account on Paytm now!
+https://p.paytm.me/xCTH/ee33333e
+
+
 https://phon.pe/ru_PravjXwMo
 
 Hey! You can now use Amazon for money transfer, scan QR, bills and shopping. Join me and get rewards up to Rs.350. Use my referral code: L43JTD or click on
