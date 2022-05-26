@@ -1,3 +1,5 @@
+https://github.com/gam3t3chelectronicshobbyhouse/PyCharmInstaller
+
 https://www.windmillenergy.cc/#/pages/login/register?incode=25683187&posterid=2
 
 Hey! I'm now using Paytm to pay anyone directly from my bank account. Join me and win up to ₹700 cashback every month on sending money to any mobile number, bank account number or UPI ID. Make your 1st payment from bank account on Paytm now!
